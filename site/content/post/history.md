@@ -1,0 +1,31 @@
+---
+title: Bay Creek's Story
+date: 2018-01-04T15:04:10.000Z
+description: >-
+  What once was a marshland has transformed into a vibrant community. Learn more about how Bay Creek was born.
+image: /img/blog/chemex.jpg
+---
+
+European-born settlers first arrived to Madison in 1837. Within twenty years, Madison was incorporated into a city, with an imposing capitol building, flour mills and sawmills, four-story office blocks, frame worker's cottages, sandstone mansions and 12,000 residents.
+
+Just across the lake, however, the present Bay Creek neighborhood remained rural and remote. Peat marshes covered much of the area, making travel impossible in the spring and difficult after heavy rains. A large hill of sand rose south of where Haywood Drive is today. The site of several Indian burial mounds, and an unofficial early pioneer cemetery, it became known as Deadman's Ridge. Madison's first railroad line, built in 1854, ran through the eastern part of the Bay Creek area on the tracks of the old Milwaukee Road. The Chicago and Northwestern soon added another line to the west, completed in 1864.
+
+In 1861, when a surveyor began to prepare a plat map of Dane County, there were only six buildings in the entire area. Four small houses were clustered around the corner of Beld (then part of the Oregon Road) and Wingra Creek. A large sandstone mansion called "Belle Colline" sat on a tall hill where the Romnes Apartments are presently located. A vacant, six-year-old sanitarium, known as the "Water Cure," overlooked Lake Monona from the Olin-Turville Park area.
+
+Following the Civil War, the defunct sanitarium was converted at a great expense into a summer resort hotel and the grounds laid out as a pleasure park. Madisonians and tourists from St. Louis and the south, ferried across the lake by steamboat, enjoyed the scenic vacation spot until the hotel was destroyed by fire in 1877.
+
+Construction elsewhere in the Bay Creek neighborhood was sporadic, and accommodated households with wage earners who walked to work each day on the railroad bridges across Monona Bay.
+
+In the late 1880s, Madison's population rapidly increased. This was partly due to the growth of the university and partly due to the development of several large manufacturing interests, such as Gisholt. The swell spilled over into Bay Creek. In 1889, T.C. Richmond, the owner of "Belle Colline", platted some of the land west of his house as "South Madison." In the same year "Grand View" was platted, and George Lawrence platted a small section of lakefront property as the "Monona Subdivision." Several other parcels of land were also divided, including Pleasant View (1890), Oaklawn Addition (1890), Maple Court (1896), Woodlawn (1898), and Lakeside (1901). (See Map 1).
+
+By 1902, the 400 residents of these plats thought of themselves as members of a separate community, "South Madison." They truly were a diverse group, with people of German, Scandinavian, Russian, Irish, Bohemian, English, American and Dutch ancestry. Laborers lived side by side with building contractors and wealthy lawyers. These residents built a church at 610 West Olin Avenue (now Second Baptist) that was shared by many denominations. A small, frame schoolhouse was built on Potter Street (just to the southwest of where Franklin School is now). The Chicago and Northwestern had just completed a wooden railroad depot just north of Lakeside Street and a streetcar line would soon be built along Lakeside Street connecting South Madison to the downtown. New store buildings sprang up at 335 and 402 West Lakeside Street and at 423 West Olin Avenue. In 1900, the Badger Shoe Factory, a major industry that had moved from Milwaukee to South Madison, opened at 1335 Gilson Street. The factory moved to larger quarters in 1910, and the old plant on Gilson was demolished a couple of years ago.
+
+Even with all this development, the scenic beauty of the area had not been lost. The old sanatorium site was purchased in 1882 to serve as the Monona Lake Assembly. Begun as a summer camp for Sunday School teachers, the assembly became very popular. Soon, 15,000 people congregated in tents for several weeks each summer to swim, play, listen to live musical performances and hear inspirational, intellectual and political lectures. The 1884 normal lecture hall in Olin-Turville Park is now the only remnant of this once nationally-known resort. It was purchased for a city park in 1912. A new sanitarium was erected nearby in 1902 at 202 East Lakeside Street (formerly Victory Life Center 4-Square Gospel Church with a modern church building). In 1890, the Dane County Agricultural Society purchased the old Lakeside Farm south of Wingra Creek to serve as the new Dane County Fairgrounds.
+
+As more and more people moved to Bay Creek, some of the marshy land became filled. Dredging operations in Monona Bay yielded sand to fill the marsh along its shore. The Madison Park and Pleasure Drive Association built a concrete walk along the lakeshore (now West and South Shore Drive). The group hoped in vain that the walk would someday extend completely around the lake.
+
+In 1923 South Madison was annexed by the City of Madison, sparking more improvements in this thriving community which now numbered around 1,400. A new schoolhouse was built (the main section of Franklin School); streets were paved; sewer and water were installed. Many new houses were built and new shops were added to the small commercial area on Lakeside Street near the railroad depot. The new shops included another grocery store, a tailor shop, a shoe store, a pool hall, a barbershop and a bank. The Seventh Day Adventists built a church and school at 1124 Colby Street in 1924.
+
+During the 1930s there was less home building but more public improvements. The old mansion on the hill was razed and the hill itself leveled by the City to provide fill for the arboretum, Wingra Creek Parkway, Franklin Field and the new extension of West Olin Avenue to the fairgrounds. Deadman's Ridge was also leveled to help fill in the marsh west of Fish Hatchery Road. Following World War II, houses and apartment buildings quickly filled this pleasant residential neighborhood overlooking Wingra Creek.
+
+This article has been taken from the Bay Creek Neighborhood Plan
